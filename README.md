@@ -13,17 +13,12 @@
 
 <p align="center"> <img width="700" height="39" alt="image" src="https://github.com/user-attachments/assets/c0698ff0-97ab-4bdc-9f7a-98e07e461e34" />
 
-<p align="center"> wall of silly whispers
-
-  <p align="center"> <img width="455" height="49" alt="image" src="https://github.com/user-attachments/assets/fc4c439c-3d92-425a-8de2-c10878ed432c" />
 
 > [!NOTE]
 >  Whisp/ATA me if im with someone problematic.
 
-> i block freely
-
 > [!CAUTION]
 > <p align="center"> dni darkshippers, i will permhide. if i accidentally int with you, permhide me
 
-> <p align="center"> please dont make inappropriate jokes/actions directed AT ME in safe servers.
+> <p align="center"> please dont make inappropriate jokes/actions directed AT ME in safe servers. I block freely
 
