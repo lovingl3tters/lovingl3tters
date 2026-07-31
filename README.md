@@ -1,24 +1,65 @@
-
-<p align="center"> <img width="700" height="32" alt="image" src="https://github.com/user-attachments/assets/d352a52a-7894-4a1c-98db-479e97c91fc7" /> 
-<p align="center"> hi im markus / capo. gihhub wip
+<p align="center"> this is never going to get finished. im busy nullscaping 😴 gihhub wip
 <p align="center"> I am a 2D and 3D artist. 
 <p align="center"> 
 
 
 
-<p align="center">  Ponytown's Caporegime
 
 
 <p align="center"> <img width="2570" height="735" alt="caporegimes_banner aww" src="https://github.com/user-attachments/assets/abc02705-a0d9-4b13-86e1-f9a82578d54d" />
 
 <p align="center"> <img width="700" height="39" alt="image" src="https://github.com/user-attachments/assets/c0698ff0-97ab-4bdc-9f7a-98e07e461e34" />
 
+<details>
+  <summary> roblox games i play </summary>
+  
+  wip.
+  
+  nullscape
+  
+  frozen soul / dream game
+  
+  animal hospital
+  
+  sewh
+  
+  PHIGHTING!
+  
+  darkest hours
+  
+  regretavator
+  
+  + more/whatever games my friends play
+</details>
 
-> [!NOTE]
->  Whisp/ATA me if im with someone problematic.
 
-> [!CAUTION]
-> <p align="center"> dni darkshippers, i will permhide. if i accidentally int with you, permhide me
+<details>
+  <summary> boundaries </summary>
+  
+  - Whisp/ATA me if im with someone problematic.
+  
+  - dni darkshippers, i will permhide. if i accidentally int with you, permhide me.
+  
+  - please dont make inappropriate jokes/actions directed AT ME in safe servers. I block freely
+</details>
 
-> <p align="center"> please dont make inappropriate jokes/actions directed AT ME in safe servers. I block freely
 
+<details>
+  <summary> Ponytown's Caporegime </summary>
+  screenshots soon im just zzzzz
+  
+@fans-town - Mafialing's biggest fan
+  
+@title-town - Ponytown's Caporegime
+
+@pt-contributers - Ponytown's Caporegime
+
+@pt-hall-of-media - Ponytown's Caporegime
+
+@pt-of-awesomeness - ponytowns awesomeness's caporegime!
+</details>
+
+<details>
+  <summary> beloved oomfies </summary>
+wip
+</details>
