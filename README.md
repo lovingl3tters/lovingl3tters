@@ -35,13 +35,15 @@
 𓎢𓎠𓎟𓎠𓎡
 
 <details>
-  <summary> boundaries </summary>
+  <summary> boundaries + byi </summary>
   
   - Whisp/ATA me if im with someone problematic.
   
   - dni darkshippers, i will permhide. if i accidentally int with you, permhide me.
   
-  - please dont make inappropriate jokes/actions directed AT ME in safe servers. I block freely
+  - please dont make inappropriate jokes/actions directed AT ME in safe servers.
+  
+  - I block and hide freely for my own comfort. feel free to do the same to me if applicable.
 </details>
 
 𓎢𓎠𓎟𓎠𓎡
