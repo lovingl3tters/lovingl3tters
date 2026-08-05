@@ -32,6 +32,7 @@
   + more/whatever games my friends play
 </details>
 
+𓎢𓎠𓎟𓎠𓎡
 
 <details>
   <summary> boundaries </summary>
@@ -43,6 +44,7 @@
   - please dont make inappropriate jokes/actions directed AT ME in safe servers. I block freely
 </details>
 
+𓎢𓎠𓎟𓎠𓎡
 
 <details>
   <summary> Ponytown's Caporegime </summary>
@@ -57,9 +59,17 @@
 @pt-hall-of-media - Ponytown's Caporegime
 
 @pt-of-awesomeness - ponytowns awesomeness's caporegime!
+
+@ponychievements - ponytown’s caporegime !
 </details>
+
+𓎢𓎠𓎟𓎠𓎡
 
 <details>
   <summary> beloved oomfies </summary>
-wip
+
+names are not in any particular orders. i love you friends and oomfs
+
+wip. if i sit/talk with you a lot, you're likely included in here
+
 </details>
