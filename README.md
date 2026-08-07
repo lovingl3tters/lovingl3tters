@@ -69,7 +69,9 @@
 <details>
   <summary> Ponytown's Caporegime </summary>
   screenshots soon im just zzzzz
-  
+
+@ship-town - Num.1 Fedorashades + Polymafia shipper!
+
 @fans-town - Mafialing's biggest fan
   
 @title-town - Ponytown's Caporegime
