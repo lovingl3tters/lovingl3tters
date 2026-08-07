@@ -19,8 +19,6 @@
  
 - pronouns: check profile, it changes regularly
 
-- 18 y/o
-
 - aromantic that loves love. 
 
 - happily in a qpr with my alex, hi fedora ♡
@@ -37,7 +35,7 @@
   
   - dni darkshippers, i will permhide. if i accidentally int with you, permhide me.
   
-  - please do not make inappropriate jokes/actions directed AT ME in safe servers. ***even if youre a friend.***
+  - im 18. please do not make inappropriate jokes/actions directed AT ME in safe servers, esp if youre a minor. ***even if youre a friend.***
   
   - I block and hide freely for my own comfort. feel free to do the same to me if applicable.
 </details>
