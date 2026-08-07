@@ -14,15 +14,16 @@
 
 <details>
   <summary> about me </summary>
-  hi im caporegime
   
-  it/he pronouns
+- hi im caporegime
+ 
+- pronouns: check profile, it changes regularly
 
-  18 y/o
-  
-  aromantic that loves love. 
-  
-  happily in a qpr with my alex, hi fedora ♡
+- 18 y/o
+
+- aromantic that loves love. 
+
+- happily in a qpr with my alex, hi fedora ♡
   
   
   </details>
@@ -32,11 +33,11 @@
 <details>
   <summary> boundaries + byi </summary>
   
-  - Whisp/ATA me if im with someone problematic.
+  - Whisp/ATA me if im with someone problematic with attached proof.
   
   - dni darkshippers, i will permhide. if i accidentally int with you, permhide me.
   
-  - please dont make inappropriate jokes/actions directed AT ME in safe servers.
+  - please do not make inappropriate jokes/actions directed AT ME in safe servers. ***even if youre a friend.***
   
   - I block and hide freely for my own comfort. feel free to do the same to me if applicable.
 </details>
