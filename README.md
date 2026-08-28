@@ -37,6 +37,8 @@
 
 <a href="https://github.com/fans-town"> @fans-town </a> - Mafialing's biggest fan
 
+<a href="https://github.com/ponytown-nominations"> @ponytown-nominations </a> - Pony Town's CAPOREGIME
+
 <a href="https://github.com/title-town"> @title-town </a> - Ponytown's Caporegime
 
 <a href="https://github.com/pt-contributers"> @pt-contributers </a> - Ponytown's Caporegime
@@ -57,4 +59,12 @@ names are not in any particular orders. i love you friends and oomfs
 
 wip. if i sit/talk with you a lot, you're likely included in here
 
+</details>
+𓎢𓎠𓎟𓎠𓎡
+
+<details>
+  <summary> ♥️ wall of memories </summary>
+
+<p align="center"> <img width="594" height="416" alt="flowerandimakefood" src="https://github.com/user-attachments/assets/a21afcd4-f22d-4a27-b77c-ff44101e87d4" />
+<p align="center"> wonderful dinnertime with elliot - frozen soul
 </details>
