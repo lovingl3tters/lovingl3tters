@@ -10,8 +10,7 @@
 
 - happily in a qpr with my fedora, don sonnellino, hi alex ♡
 
-- sys. 'caporegime' is not a sysmate, it is a comflink. we use caporegime as a shared name on ponytown B) 
-  
+- sys. 'caporegime' is not a sysmate, he is a comflink. we use caporegime as a collective name on ponytown
   
   </details>
 𓎢𓎠𓎟𓎠𓎡
