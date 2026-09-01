@@ -9,6 +9,8 @@
 - aromantic that loves love. 
 
 - happily in a qpr with my fedora, don sonnellino, hi alex ♡
+
+- sys. 'caporegime' is not a sysmate, it is a comflink. we use caporegime as a shared name on ponytown B) 
   
   
   </details>
