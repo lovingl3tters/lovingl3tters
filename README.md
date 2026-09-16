@@ -33,8 +33,9 @@
 <details>
   <summary> ♦️ nominations </summary>
 
-  <a href="https://github.com/ship-town"> @ship-town </a> - Num.1 Fedorashades + Polymafia shipper!
+<a href="https://github.com/ship-town"> @ship-town </a> - Num.1 Fedorashades + Polymafia shipper!
 
+<a href="https://github.com/pt-ship-nominations"> @pt-ship-nominations </a> - as ponytown's PizzaFedoraShades🍕🎩😎 rarepair with my friends <3/p
 
 <a href="https://github.com/fans-town"> @fans-town </a> - Mafialing's biggest fan
 
@@ -49,6 +50,8 @@
 <a href="https://github.com/pt-of-awesomeness"> @pt-of-awesomeness </a> - Ponytowns awesomeness's Caporegime!
 
 <a href="https://github.com/ponychievements"> @ponychievements </a> - Ponytown’s Caporegime !
+
+<a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a> as ponytowns CaporgimeΣ(･o･;)
 </details>
 
 𓎢𓎠𓎟𓎠𓎡
@@ -56,9 +59,11 @@
 <details>
   <summary> ♠️ beloved oomfies </summary>
 
-names are not in any particular orders. i love you friends and oomfs
+names are not in any particular order. i love you friends and oomfs
 
-wip. if i sit/talk with you a lot, you're likely included in here
+if i sit/talk with you a lot, you're likely included in here
+
+current list are those who are my @'s in gh <3 youre all wonderful
 
 </details>
 𓎢𓎠𓎟𓎠𓎡
@@ -68,4 +73,9 @@ wip. if i sit/talk with you a lot, you're likely included in here
 
 <p align="center"> <img width="594" height="416" alt="flowerandimakefood" src="https://github.com/user-attachments/assets/a21afcd4-f22d-4a27-b77c-ff44101e87d4" />
 <p align="center"> wonderful dinnertime with elliot - frozen soul
+
+<p align="center"> <img width="546" height="479" alt="Screenshot_2026-09-12_204802" src="https://github.com/user-attachments/assets/64244f7d-a44a-45ac-b8f1-5f8f9ee3f8c8" /> 
+<p align="center"> <img width="540" height="416" alt="Screenshot_2026-09-12_205008" src="https://github.com/user-attachments/assets/5167c40f-2442-4483-9d4b-422be1bfdc43" />
+
+
 </details>
