@@ -37,6 +37,9 @@
 
 <a href="https://github.com/pt-ship-nominations"> @pt-ship-nominations </a> - as ponytown's PizzaFedoraShades🍕🎩😎 rarepair with my friends <3/p
 
+<a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a> - as #2 fedorapizzashades shipper (MafxElliotxCaporegime)☆(ﾉ◕ヮ◕)ﾉ*
+
+
 <a href="https://github.com/fans-town"> @fans-town </a> - Mafialing's biggest fan
 
 <a href="https://github.com/ponytown-nominations"> @ponytown-nominations </a> - Pony Town's CAPOREGIME
