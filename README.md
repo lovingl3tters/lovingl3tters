@@ -1,32 +1,7 @@
 <p align="center"> <img width="800" height="436" alt="lovingl3ttersponytownreadme" src="https://github.com/user-attachments/assets/00311927-9e4b-4d6a-9867-b6375419ae5c" />
 <p align="center"> <img width="736" height="30" alt="tumblr_45dfc0a6f61851ebe2036fa991080a9c_bc3616c2_1280" src="https://github.com/user-attachments/assets/3ebfda72-cf8d-40ac-8e06-9d5be09f274a" />
 
-<details>
-  <summary> ♣️ about me </summary>
-
-- 2d3d artist
-
-- aromantic that loves love. 
-
-- happily in a qpr with my fedora, don sonnellino, hi alex ♡
-
-- sys. 'caporegime' is not a sysmate, he is a comflink. we use caporegime as a collective name on ponytown
-  
-  </details>
-𓎢𓎠𓎟𓎠𓎡
-
-<details>
-  <summary> ♥️ boundaries + byi </summary>
-
-  - im 18. please do not make inappropriate jokes/actions directed AT ME in safe servers. ***even if youre a friend.***
-
-  - Whisp/ATA me if im with someone problematic with attached proof.
-  
-  - dni darkshippers, i will permhide. if i accidentally interact with you, permhide me.
-    
-  - I block and hide freely for my own comfort. feel free to do the same to me if applicable.
-</details>
-
+i am an adult. im maintly afk with my friends as i dont play often anymore
 
 𓎢𓎠𓎟𓎠𓎡
 
@@ -57,28 +32,5 @@
 <a href="https://github.com/pt-of-forsaken"> @pt-of-forsaken </a> as ponytowns CaporgimeΣ(･o･;)
 </details>
 
+
 𓎢𓎠𓎟𓎠𓎡
-
-<details>
-  <summary> ♠️ beloved oomfies </summary>
-
-names are not in any particular order. i love you friends and oomfs
-
-if i sit/talk with you a lot, you're likely included in here
-
-current list are those who are my @'s in gh <3 youre all wonderful
-
-</details>
-𓎢𓎠𓎟𓎠𓎡
-
-<details>
-  <summary> ♥️ wall of memories </summary>
-
-<p align="center"> <img width="594" height="416" alt="flowerandimakefood" src="https://github.com/user-attachments/assets/a21afcd4-f22d-4a27-b77c-ff44101e87d4" />
-<p align="center"> wonderful dinnertime with elliot - frozen soul
-
-<p align="center"> <img width="546" height="479" alt="Screenshot_2026-09-12_204802" src="https://github.com/user-attachments/assets/64244f7d-a44a-45ac-b8f1-5f8f9ee3f8c8" /> 
-<p align="center"> <img width="540" height="416" alt="Screenshot_2026-09-12_205008" src="https://github.com/user-attachments/assets/5167c40f-2442-4483-9d4b-422be1bfdc43" />
-
-
-</details>
