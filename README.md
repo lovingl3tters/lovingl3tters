@@ -1,7 +1,7 @@
 <p align="center"> <img width="800" height="436" alt="lovingl3ttersponytownreadme" src="https://github.com/user-attachments/assets/00311927-9e4b-4d6a-9867-b6375419ae5c" />
 <p align="center"> <img width="736" height="30" alt="tumblr_45dfc0a6f61851ebe2036fa991080a9c_bc3616c2_1280" src="https://github.com/user-attachments/assets/3ebfda72-cf8d-40ac-8e06-9d5be09f274a" />
 
-i am an adult. im maintly afk with my friends as i dont play often anymore
+i am an adult. im mainly afk or sitting with my friends as i dont play often anymore. i look at my atabook every 100 years 
 
 𓎢𓎠𓎟𓎠𓎡
 
